@@ -2,7 +2,7 @@
 
 ## **Scouts Trash the Trash**  
 
-Date:May 1st, 2021
+Date: May 1st, 2021
 
 Time: 9:00 AM - 10:00 AM
 
