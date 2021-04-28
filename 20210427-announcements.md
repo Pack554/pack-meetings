@@ -1,6 +1,6 @@
 # Pack Meeting Agenda - April 2021
 
-## **Scouts Trash the Trash **
+## **Scouts Trash the Trash**  
 
 Date:May 1st, 2021
 
@@ -18,7 +18,7 @@ Prize for group with biggest bag of trash 
 
 Ultimate Frisbee after
 
-## **Graduation **
+## **Graduation**
 
 Date: May 25th, 2021
 
