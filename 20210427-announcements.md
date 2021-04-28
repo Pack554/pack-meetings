@@ -4,19 +4,27 @@
 
 Date: May 1st, 2021
 
-Time: 9:00 AM - 10:00 AM
+Time: 9:00 AM - 10:00 AM
 
-Location: Lynn Gripon Park at Countryside 
+Location: Lynn Gripon Park at Countryside Pavilion
 
 Address: 100 Alderwood, League City, TX 77573
 
 Uniform: Class As
 
-Bring a friend 
+Service Project Opportunity!
 
-Prize for group with biggest bag of trash 
+Bring a friend 
+
+We will break off in teams to 'trash the trash'.
+
+The team with the most trash will get a prize. 
 
 Ultimate Frisbee after 10:00 AM - 11:00 AM
+
+Please RSVP
+
+Save the Date - https://scoutstrashthetrashday.org/
 
 ---
 
