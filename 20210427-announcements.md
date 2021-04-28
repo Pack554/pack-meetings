@@ -4,7 +4,7 @@
 
 Date:May 1st, 2021
 
-Time: 9 AM 
+Time: 9:00 AM - 10:00 AM
 
 Location: Lynn Gripon Park at Countryside 
 
@@ -16,7 +16,9 @@ Bring a friend 
 
 Prize for group with biggest bag of trash 
 
-Ultimate Frisbee after
+Ultimate Frisbee after 10:00 AM - 11:00 AM
+
+---
 
 ## **Graduation**
 
@@ -31,6 +33,8 @@ Address: 1650 TX-3, League City, TX 77573
 Uniform: Class As
 
 Bring family and friends
+
+---
 
 ## **National Trails Day**
 
@@ -48,6 +52,8 @@ Bring a friend
 
 Swag provided by the City for first 150
 
+---
+
 ## **Flag retirement**
 
 Date: June 14th, 2021
@@ -59,6 +65,8 @@ Location: American Legion Post 554
 Address: 1650 TX-3, League City, TX 77573
 
 Uniform: Class As
+
+---
 
 ## **Houston Food Bank Service Project**
 
