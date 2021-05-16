@@ -88,13 +88,9 @@ Address: 535 Portwall St. Houston, TX 77029
 
 Uniform: Class As
 
-We have a multi-unit service projects benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM. There, we will come together and learn about 'Huddle for Hunger'. Then, we will help the Houston Food Bank by sorting and pacaking items. I am working on getting Toro, the mascot  for the Houston Texans out there.
+We have a multi-unit service project benefiting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM. There, we will come together and learn about 'Huddle for Hunger'. Then, we will help the Houston Food Bank by sorting and packaging items. I am working on getting Toro, the mascot  for the Houston Texans out there.  
 
-There are only 70 slots available.  
-
-- 30 slots for adults.   
-
-- 40 for youth under 18\.  
+There are only 50 slots left available.  
 
 - 6 and up.
 
